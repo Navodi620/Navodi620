@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **Java,html,css,javascript,php,C,C++**
 
-- 📫 How to reach me **sanil.sandeep001@gmail.com**
+- 📫 How to reach me **navoditharaka8@gmail.com**
 
 - ⚡ Fun fact **Call me as Navodi**
 
